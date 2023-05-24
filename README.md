@@ -11,5 +11,5 @@ Trabalho com atendimento a suporte técn de produto de redes🖥️
 
 Seja _gentil_ com a novata 👀
 
-
-![gifs-do-baby-yoda-0](https://github.com/IsabelaOliver/isabelaoliver/assets/133157677/fe1d9be9-e81b-4076-8914-3e611d06916d)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                              
+<img width="150" alt="download20230503175059" src="https://github.com/IsabelaOliver/isabelaoliver/assets/133157677/a55a6d2d-ebe0-47c8-a24c-b105a00a9121">       
