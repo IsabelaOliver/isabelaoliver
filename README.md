@@ -1,6 +1,6 @@
 # Fala Galera 🫶
 
- Isa Moura por aqui :octocat: 
+ Isa Moura por aqui🫡
 Apaixonada por **Star Wars** 
 
 
