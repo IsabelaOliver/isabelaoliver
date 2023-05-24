@@ -1,4 +1,4 @@
-# Olá Galera 🤙
+# Fala Galera 🫶
 
  Isa Moura por aqui :octocat: 
 Apaixonada por **Star Wars** 
